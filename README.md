@@ -1,6 +1,6 @@
 # Description
 
-We are a group of hackers striving for knowledge of the world and engaged in the fulfilment of our cognitive abilities. We will respect anyone who strives to learn anything and despise anyone who is unable to think with their head.
+We are a group of hackers striving for cognition of the world and engaged in the fulfilment of our cognitive abilities. We will respect anyone who strives to cognate anything and despise anyone who is unable to think with their head.
 
 # Описание
 
